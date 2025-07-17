@@ -142,7 +142,7 @@ IE IEUS EO OU EO OUA!\
 真實不假地，噢，Yesseus Mazareus Yessedekeus，\
 噢，生命的活水，噢，孩子的孩子，噢，顯赫的名字！\
 真實不假地，\
-AION O ON（或: 噢，現存永世萬古的一位），\
+AION O ON（或：噢，現存永世萬古的一位），\
 IIII EEEE EEEE OOOO UUUU OOOO AAAA{A}。\
 真實不假地，\
 EI AAAA OOOO，O\

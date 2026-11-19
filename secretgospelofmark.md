@@ -10,7 +10,7 @@
 
 ## 文本
 
-一封歸於亞歷山大的革利免（Clement of Alexandria）名下的書信
+**一封歸於亞歷山大的革利免（Clement of Alexandria）名下的書信**
 
 （附註手稿版本）
 

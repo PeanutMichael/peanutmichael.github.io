@@ -67,7 +67,7 @@
 - [《埃及人的福音》](egyptians.md)
 - [《艾賽尼派的平安福音》（死海古卷）](essene.md)
 - [《雅各布原始福音》](james.md)
-- [《馬可秘密福音》](secretgosbelofmark.md)
+- [《馬可秘密福音》](secretgospelofmark.md)
 - [聖公會《次經全書》](apocrypha.md)（1933）
 - [洪秀全：太平天國（拜上帝會）早期文獻](taiping.md)
 
